@@ -1,4 +1,8 @@
 # How Can I snipe the token in Pump.fun?
+
+## Contact
+telegram: @hi_3333
+
 # Solana pumpfun sniper
 
 This is the first screen of the my Sniper.
@@ -27,8 +31,5 @@ These are the steps of the sniping process.
 This public version is only buy part of my sniper.
 You can test it how fast it is to snipe the new tokens in Pump.fun sniper.
 If you are satisfied with this, then you can contact me and get whole part of my sniper.
-Contact info
-
-telegram: @Takhi777
 
 After the contact through telegram, then let's continue through other media.
