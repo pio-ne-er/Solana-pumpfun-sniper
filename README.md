@@ -1,7 +1,7 @@
 # How Can I snipe the token in Pump.fun?
 
 ## Contact
-telegram: @hi_3333
+For help or questions, reach out on Telegram: [Pio-ne-er](https://t.me/hi_3333)
 
 # Solana pumpfun sniper
 
